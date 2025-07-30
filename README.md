@@ -123,3 +123,14 @@ As a **Data Project Manager**, I led the entire project:
 
 ---
 
+![im1](https://github.com/user-attachments/assets/e7a046a8-c601-4fff-bc09-d8ac5e7e252c)
+![im6](https://github.com/user-attachments/assets/9bbf3df0-ad16-49f9-bff9-8472a6ceb1b9)
+![im5](https://github.com/user-attachments/assets/1c425437-d680-4763-af60-61f7bd73d370)
+![im4](https://github.com/user-attachments/assets/085a7c82-baf5-4f2f-97d3-c486128de9b5)
+![im3](https://github.com/user-attachments/assets/e984c94c-bd28-40d5-97af-a355090ad6c5)
+![im2](https://github.com/user-attachments/assets/8a296b3e-4462-4a87-9c48-b8815e411168)
+![im11](https://github.com/user-attachments/assets/a277a2eb-7534-4c44-84ed-ea7d12b5bfdb)
+![im10](https://github.com/user-attachments/assets/ce45a08a-2555-4b3f-ada2-6c7d8aee8d5d)
+![im9](https://github.com/user-attachments/assets/200380d5-1c53-42b0-a0c0-27d9244b6547)
+![im8](https://github.com/user-attachments/assets/43d14ab5-1538-402d-a1ea-640518335321)
+![im7](https://github.com/user-attachments/assets/6f817f2e-11a6-493d-bf66-a85bacf58312)
